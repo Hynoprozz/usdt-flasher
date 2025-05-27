@@ -1,2 +1,2 @@
 usdt flasher on sale dm @possessive 
-cheap rate 
+cheap rate telegram only
